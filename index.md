@@ -12,7 +12,7 @@ With an already solid foundation in human physiology, I am eager to learn more a
 - 📍 Location: Vancouver, BC, Canada
 - 🎓 Education: B.Sc. in Microbiology and Immunology (In Progress), University of British Columbia
 - 📧 parsashafiekhanii@gmail.com
-- 💼 [LinkedIn](www.linkedin.com/in/parsa-shafiekhani)
+- 💼 [LinkedIn](https://www.linkedin.com/in/parsa-shafiekhani)
 
 
 ---
