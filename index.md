@@ -37,6 +37,6 @@ I'd love to hear from you and I am always open to more opportunities! Feel free 
 
 ---
 
-© 2024 Sam Khoshnevis
+© 2024 Parsa Shafiekhani
 
 ---
