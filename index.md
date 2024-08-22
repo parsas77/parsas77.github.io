@@ -19,9 +19,10 @@ With an already solid foundation in human physiology, I am eager to learn more a
 
 ## Volunteering in Health Care 
 
-In pursuit of helping others as much as I can, I have become very engaged with Effective Altruism (EA). In highschool, I have fundraised for Hellen Keller's Vitamin A Supplementation program and I am currently the lead organizer of UBC Effective Altruism. Come check out EA UBC and Vancouver on our combined [discord](https://discord.gg/r2ntupNFpF)
+To become a well-respected and knowledgeable doctor in the community, I have spent much time volunteering with different people and in various fields. Much of my volunteering has been in-person, and thanks to that I have gained insight into some problems in our communities. The one that I have been the most passionate about is creating a safe, comfortable, and accessible environment for seniors dealing with age-related issues. I am currently volunteering at the Innovation in DEmenetia Care and Aging(IDEA) lab at UBC, assisting in projects that aim to resolve this issue.
 
-![image](https://github.com/user-attachments/assets/3ec9afa1-eb25-4c69-8799-b76811e750ea)
+![image](https://github.com/user-attachments/assets/e8e5330c-167c-40e6-a319-ca17cb041405)
+
 
 ## The Future for me
 
