@@ -19,16 +19,16 @@ With an already solid foundation in human physiology, I am eager to learn more a
 
 ## Volunteering in Health Care 
 
-To become a well-respected and knowledgeable doctor in the community, I have spent much time volunteering with different people and in various fields. Much of my volunteering has been in-person, and thanks to that I have gained insight into some problems in our communities. The one that I have been the most passionate about is creating a safe, comfortable, and accessible environment for seniors dealing with age-related issues. I am currently volunteering at the Innovation in DEmenetia Care and Aging(IDEA) lab at UBC, assisting in projects that aim to resolve this issue.
+To become a well-respected and knowledgeable doctor in the community, I have spent much time volunteering with different people and in various fields. Much of my volunteering has been in-person, and thanks to that I have gained insight into some problems in our communities. The one that I have been the most passionate about is creating a safe, comfortable, and accessible environment for seniors dealing with age-related issues. I am currently volunteering at the Innovation in DEmenetia Care and Aging(IDEA) lab at UBC, assisting in projects that aim to resolve related problems.
 
 <img width="591" alt="image" src="https://github.com/user-attachments/assets/c8a84b8c-e313-4ba4-9973-1740ae55881e">
 
 
 ## The Future for me
 
-I am pursuing a B.Sc. in computer science. Afterwards, I am thinking of either becoming a software engineer or pursing a career in AI research. I love to code and learn about technical machine learning. In my free time, I like to think about the future of the world with regards to AI and I regularly keep up with recent tech developments.
+I am pursuing a B.Sc. in Microbiology and Immunology, and my final goal is to become a medical doctor. After my undergraduate studies, I aim to enter the UBC medical school for my graduate studies. During this time, I will continue to volunteer and gain experience so that by the time I finish all my studies and enter residency, I will have the skills required to become a well-respected physician.	
 
-![image](https://github.com/user-attachments/assets/07d4be30-7dfc-4f29-a707-206477da0cc9)
+![image](https://github.com/user-attachments/assets/5de1075e-bc5c-4a44-8eb7-2c8eec53860e)
 
 
 ## Contact Me
